@@ -1,4 +1,4 @@
-# 💫 About Me:
+# ✨ About Me:
 👋🏼 Hi there, i'm Eduarda. 👩‍🎓<br>👩🏼‍💻A Brazilian student of computer science. 💻 <br><br>
 
 
